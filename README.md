@@ -4,7 +4,7 @@ We're two final-year BTech CSE students, class of 2025, actively seeking SDE int
 
 1. Akash Ghosh  
    Email: akashghosh.professional@gmail.com  
-   Resume: [Link to Resume](https://drive.google.com/file/d/1paXIBU31GlSOuLAxvqJ_DITMpMV8gZAZ/view)
+   Resume: [Link to Resume](https://drive.google.com/file/d/1gGZ_FXpVnLYhjt7Rgx8eXStsDZvqQuhM/view?usp=sharing)
 
 
 2. Rohit Kar  
